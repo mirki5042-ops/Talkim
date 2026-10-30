@@ -1,0 +1,2 @@
+# Talkim
+Tarki skal
